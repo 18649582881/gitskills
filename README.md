@@ -1,2 +1,2 @@
 # gitskills
-liumang come oooo nima
+liumang come oooo ppp
